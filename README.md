@@ -27,4 +27,8 @@
 - [李悠悠豆瓣原文以及消失，这是一份存档](http://user.guancha.cn/main/content?id=11298&s=fwzxfbbt&page=0)；受害人朋友李悠悠的文章
 - [前北大教授被指性侵女生致其自杀 回应：恶意诽谤](http://www.bjnews.com.cn/news/2018/04/05/482133.html)：沈阳的回应
 
+## 熊跃根@北大社会学系
 
+- [熊跃根一直在性骚扰女学生的边缘试探](https://www.douban.com/people/57519876/status/2140400653/)：声称女生不能选熊跃根，声称熊跃根在性骚扰女学生的边缘试探
+
+![](assets/xiong-yuegen.jpg)
