@@ -37,6 +37,11 @@
 
 - [关于上海交通大学凯原法学院教授 李学尧的二三事(ZZ)，原文以删除所以只好使用存档](https://kantie.org/topics/mitbbs/31091893)：当事人被李学尧强奸并且强行维持恋爱关系和长期性关系
 
+## 周勇@上财统管学院
+
+- [上财统管学院是院长周勇猎艳的后花园](https://mp.weixin.qq.com/s?__biz=MzI1MzQyNjExNg==&mid=2247484179&idx=1&sn=c86dd7e00324a8de229b02d834d6e05a&chksm=e9d5e3b8dea26aae138d004c5c362346216ce8bfd7c942d952effad8a1881daaca16e4c941aa&mpshare=1&scene=1&srcid=0407oxjoDLZ9IyDyF3EUK6Sq&pass_ticket=8agX8P%2BV7OoMzMT37vKkICEdKSXlOkzQzgm8YdwpktOOc%2BHEm8xOF%2FtOvvs6SpiM&dt_platform=douban_broadcast&dt_dapp=1#rd)：文章说**周勇**利用学术上的便利，除了自己睡学生，也给别的导师（**胡建华**）机会睡学生，还提到了上财法学院的**劳伦斯·米切尔**（**米罗**）在美国猎艳的事情。
+
+
 
 
 
