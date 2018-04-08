@@ -26,6 +26,7 @@
 
 - [李悠悠豆瓣原文以及消失，这是一份存档](http://user.guancha.cn/main/content?id=11298&s=fwzxfbbt&page=0)；受害人朋友李悠悠的文章
 - [前北大教授被指性侵女生致其自杀 回应：恶意诽谤](http://www.bjnews.com.cn/news/2018/04/05/482133.html)：沈阳的回应
+- [现代快报独家对话举报人李悠悠：已联系到受沈阳侵害的另几位女生](http://app.myzaker.com/news/article.php?pk=5ac8976b1bc8e0407f0001d4&dt_platform=douban_broadcast&dt_ref=02b380e3f459aa448e530105625086e91195684e56f41f43b05736aa2fdb8736&dt_dapp=1&dt_dapp=1)：进展
 
 ## 熊跃根@北大社会学系
 
