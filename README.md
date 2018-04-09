@@ -44,6 +44,9 @@
 - [上财统管学院是院长周勇猎艳的后花园](http://blog.sina.com.cn/s/blog_17fe3acb20102xg97.html)[[也有一篇完全相同的微信文章](https://mp.weixin.qq.com/s?__biz=MzI1MzQyNjExNg==&mid=2247484179&idx=1&sn=c86dd7e00324a8de229b02d834d6e05a&chksm=e9d5e3b8dea26aae138d004c5c362346216ce8bfd7c942d952effad8a1881daaca16e4c941aa&mpshare=1&scene=1&srcid=0407oxjoDLZ9IyDyF3EUK6Sq&pass_ticket=8agX8P%2BV7OoMzMT37vKkICEdKSXlOkzQzgm8YdwpktOOc%2BHEm8xOF%2FtOvvs6SpiM&dt_platform=douban_broadcast&dt_dapp=1#rd)]：文章说**周勇**利用学术上的便利，除了自己睡学生，也给别的导师（**胡建华**）机会睡学生，还提到了上财法学院的**劳伦斯·米切尔**（**米罗**）在美国猎艳的事情。“周勇对某些女老师也是一样手脚不干净”
 
 
+## 青岛求实职业技术学院
+
+- [女生被老师带出吃饭坠亡 青岛求实职业技术学院19岁女生刘晓傲](http://www.wenzhousx.com/news/shehui/46681.html)：报道中提到这所学院的三个案例，28岁女教师被奸杀，学生干部跳楼，刘晓傲跳楼。
 
 
 
