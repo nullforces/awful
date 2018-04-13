@@ -59,7 +59,7 @@
   - 截图备份：
     <details>
 	  <summary>截图备份</summary>
-		<img src="assets/zhangkangzhi-renming.jpg" >
+		<img src="assets/zhangkangzhi-renmin.jpg" >
     </details>
   
 
