@@ -25,7 +25,7 @@
 ## 王攀@武汉理工大学
 
 
-- [这所211大学突发研究生自杀事件，案件核心人物发声明了！](http://china.huanqiu.com/article/2018-03/11736816.html)：包含受害人家属的回应，以及王攀的回应。
+- [陶崇园事件永久档案库](https://github.com/lonufate/ArchivesOfTaoChongyuan)；陶崇圆系该事件受害人。
 
 
 ## 沈阳@北京大学|南京大学
@@ -69,7 +69,8 @@
 
 ## 青岛求实职业技术学院
 
-- [女生被老师带出吃饭坠亡 青岛求实职业技术学院19岁女生刘晓傲](http://www.wenzhousx.com/news/shehui/46681.html)：报道中提到这所学院的三个案例，28岁女教师被奸杀，学生干部跳楼，刘晓傲跳楼。
+- [一名女大学生的非正常死亡](http://zqb.cyol.com/html/2012-11/21/nw.D110000zgqnb_20121121_2-07.htm)
+- [青岛求实学院相关负责人被追责](http://zqb.cyol.com/html/2012-11/23/nw.D110000zgqnb_20121123_3-07.htm)
 
 
 
